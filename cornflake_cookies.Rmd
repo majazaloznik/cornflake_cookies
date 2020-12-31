@@ -1,5 +1,8 @@
-link na [printable verzijo](cornflake_cookies.pdf)
-
+---
+output:
+  pdf_document: default
+  html_document: default
+---
 ### Recept za cornflake cookies za IMI in Ronjo
 
 Recept je prevod in priredba [originalnega recepta (link)](https://wearenotmartha.com/momofuku-milk-bars-cornflake-chip-marshmallow-cookies/) avtorice Christine Tosi iz Momofuku Milk bar - na netu je več blogov o tem receptu in izkušnjah z njim. Tukaj je slovenska verzija v naših merah in z nekaj namigi na podlagi mojih izkušenj. 
