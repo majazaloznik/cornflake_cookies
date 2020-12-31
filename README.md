@@ -1,6 +1,6 @@
 link na [printable verzijo](cornflake_cookies.pdf)
 
-### Recept za cornflake cookies za IMI in Ronjo
+## Recept za cornflake cookies za IMI in Ronjo
 
 Recept je prevod in priredba [originalnega recepta (link)](https://wearenotmartha.com/momofuku-milk-bars-cornflake-chip-marshmallow-cookies/) avtorice Christine Tosi iz Momofuku Milk bar - na netu je več blogov o tem receptu in izkušnjah z njim. Tukaj je slovenska verzija v naših merah in z nekaj namigi na podlagi mojih izkušenj. 
 
@@ -14,11 +14,11 @@ NB: ja, res je toliko sladkorja not in ja, res je toliko soli not, zakaj pa misl
 
 50 g mleka v prahu (dobiš v vsakem mercatorju)
 
-40g belega sladkorja
+40 g belega sladkorja
 
 1 žlička sladkorja
 
-130g stopljenega masla
+130 g stopljenega masla
 
 
 1. Segreješ pečico na 125 C. Pekač za piškote pokriješ s peki papirjem. 
