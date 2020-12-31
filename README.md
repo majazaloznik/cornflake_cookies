@@ -61,7 +61,7 @@ NB: ja, res je toliko sladkorja not in ja, res je toliko soli not, zakaj pa misl
 
 2. Dodaš jajce in vanilijo in miksaš 7 minut. Ja, celih 7 minut. 
 
-3. Dodaš Moko, sodo bikarbono, pecilni prašek in sol ter na hitro zmešaš, da je enakomerno.
+3. Dodaš moko, sodo bikarbono, pecilni prašek in sol ter na hitro zmešaš, da je enakomerno.
 
 4. Dodaš čokolado in cornflake crunch. 
 
