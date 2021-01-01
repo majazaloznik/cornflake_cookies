@@ -16,7 +16,7 @@ NB: ja, res je toliko sladkorja not in ja, res je toliko soli not, zakaj pa misl
 
 40 g belega sladkorja
 
-1 žlička sladkorja
+1 žlička soli
 
 130 g stopljenega masla
 
