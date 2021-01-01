@@ -28,7 +28,7 @@ NB: ja, res je toliko sladkorja not in ja, res je toliko soli not, zakaj pa misl
 
 4. Preliješ s stopljenim maslom in dobro premešaš. 
 
-5. Daš v pečico za 10 minut. Potem vzameš ven, premešaš in daš nazaj še za 10 minut.  Ohladiš. 
+5. Enakomerno razporediš po pekaču in daš v pečico za 10 minut. Potem vzameš ven, premešaš in daš nazaj še za 10 minut.  Ohladiš. 
 
 ### Cornflake cookies
 
@@ -71,9 +71,11 @@ NB: ja, res je toliko sladkorja not in ja, res je toliko soli not, zakaj pa misl
 
 7. Oblikovane piškote zlagaš recimo na desko za rezanje in daš med njih plastično folijo. Ko so vsi oblikovani jih daš v hladilnik za *najmanj dve uri*. To je ključnega pomena, ne goljufati tukaj! Lahko jih daš v hladilink tudi čez noč.
 
-8. Zložiš pipkote na pekač in jim pustiš *ogromno prostora*, da se razlezejo (ne daš več kot 9 piškotov na en ta velik pekač). Pečeš na 190° C 9 minut na peki papirju. Ne jih pečt na silikonski podlagi, ne bo OK! Ko jih vzameš ven, bojo izgledali še precej surovi na sredini, na robovih pa že malo zapečeni. Tako je prav. Zato jih moraš tudi pustiti na pekaču da se na pol ohladijo, ker bojo razpadli, če jih prej probaš premakniti. 
+8. Zložiš piškote na pekač in jim pustiš *ogromno prostora*, da se razlezejo (ne daš več kot 9 piškotov na en ta velik pekač). Pečeš na 190° C 9 minut na peki papirju. Ne jih pečt na silikonski podlagi, ne bo OK! Ko jih vzameš ven, bojo izgledali še precej surovi na sredini, na robovih pa že malo zapečeni. Tako je prav. Zato jih moraš tudi pustiti na pekaču da se na pol ohladijo, ker bojo razpadli, če jih prej probaš premakniti. 
 
-9. Potem jih nežno prestaviš na rešetko, da se ohladijo do konca. 
+9. Potem jih nežno prestaviš na rešetko, da se ohladijo do konca in daš pečt drugo rundo... 
 
 10. Uživaš <3
+
+PS: mogoče je cornflake cruncha malo preveč v tem receptu. Ker, po pravici povedano, ga jaz ogromno pojem kar žlico medtem ko se ohlaja. Tako da mogoče ne dodati čisto cele količine, da ne bi testo postalo preveč drobljivo. Če ga kaj ostane, je super posip za na sladoled!
 
