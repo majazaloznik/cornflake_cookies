@@ -21,7 +21,7 @@ NB: ja, res je toliko sladkorja not in ja, res je toliko soli not, zakaj pa misl
 130 g stopljenega masla
 
 
-1. Segreješ pečico na 125 C. Pekač za piškote pokriješ s peki papirjem. 
+1. Segreješ pečico na 125° C. Pekač za piškote pokriješ s peki papirjem. 
 
 2. V veliko skledo daš cornflakese. Umiješ si roke. S čistimi rokami zdrobiš cornflakese kolikor gre--ne pretiravati. 
 3. Primešaš mleko v prahu, sladkor in sol.
@@ -71,7 +71,7 @@ NB: ja, res je toliko sladkorja not in ja, res je toliko soli not, zakaj pa misl
 
 7. Oblikovane piškote zlagaš recimo na desko za rezanje in daš med njih plastično folijo. Ko so vsi oblikovani jih daš v hladilnik za *najmanj dve uri*. To je ključnega pomena, ne goljufati tukaj! Lahko jih daš v hladilink tudi čez noč.
 
-8. Zložiš pipkote na pekač in jim pustiš *ogromno prostora*, da se razlezejo (ne daš več kot 9 piškotov na en ta velik pekač). Pečeš na 190 C 9 minut na peki papirju. Ne jih pečt na silikonski podlagi, ne bo OK! Ko jih vzameš ven, bojo izgledali še precej surovi na sredini, na robovih pa že malo zapečeni. Tako je prav. Zato jih moraš tudi pustiti na pekaču da se na pol ohladijo, ker bojo razpadli, če jih prej probaš premakniti. 
+8. Zložiš pipkote na pekač in jim pustiš *ogromno prostora*, da se razlezejo (ne daš več kot 9 piškotov na en ta velik pekač). Pečeš na 190° C 9 minut na peki papirju. Ne jih pečt na silikonski podlagi, ne bo OK! Ko jih vzameš ven, bojo izgledali še precej surovi na sredini, na robovih pa že malo zapečeni. Tako je prav. Zato jih moraš tudi pustiti na pekaču da se na pol ohladijo, ker bojo razpadli, če jih prej probaš premakniti. 
 
 9. Potem jih nežno prestaviš na rešetko, da se ohladijo do konca. 
 
